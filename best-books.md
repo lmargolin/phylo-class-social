@@ -1,3 +1,4 @@
+- Maddie: my grandmother asked me to tell you she's sorry
 - Ari: The Amazing Adventures of Kavalier and Clay
 
 # List of best books read in 2025 by Botany 563 Spring 2024 class
